@@ -10,7 +10,7 @@
 
 
 
->## <p align="center"> me and nastya ! ! ~ <img width="130" height="64" alt="image" src="https://github.com/user-attachments/assets/2ca17ef0-4ec5-4d8a-b5ce-f65778421569" />
+>## <p align="center"> me and @gufiik ! ! ~ <img width="130" height="64" alt="image" src="https://github.com/user-attachments/assets/2ca17ef0-4ec5-4d8a-b5ce-f65778421569" />
 
 <img width="2048" height="15" alt="image" src="https://github.com/user-attachments/assets/7622c4aa-f3c3-4680-b544-9b4eb4dba6f9" />
 
